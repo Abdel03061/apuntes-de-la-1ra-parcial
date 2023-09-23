@@ -1,0 +1,1 @@
+![](file:///C:/Users/Luisa/OneDrive/Escritorio/programas%20de%20markdown/CalificacionDeAlumnos.bmp)
